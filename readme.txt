@@ -1,1 +1,1 @@
-Here are some dice pics.  
+Here are some ugly dice pics.  
